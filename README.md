@@ -1,1 +1,2 @@
-# 2015510065-Nazl-can-VAR-SL-
+# 2015510065-Nazlican-VARiSLi
+2015510051-Utku-Ovali
